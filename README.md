@@ -16,3 +16,8 @@
 * (A): 
 
 # Non-Profit Fundraising : VA-Support Foundation
+
+### Non-Profit VA Sector : (Bipartisan Party-Rider)
+
+* (Q): How can a non-profit benefit a VA's cause?
+* (A): As a non-profit, federal government, private sector advocate-advisor for the Veterans' Community, I aim the protect and preserve our Veterans' rights and to uphold their values and worth and stature within the community here on Homeland and even while out over seas on deployment.
