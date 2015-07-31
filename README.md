@@ -29,6 +29,26 @@
 * (Q): Will this ever be corrected by the proper officials?
 * (A): I can see a higher increase in improvement of this ongoing crisis, but it is not a 100% success, or even a 95% success, which is unacceptable to me personally; considering I represent the Veterans' through this darkened time in their lives as an Advocate and an Advisor. [ACP_Advisor.net] It has been a long journey accross a marred, and scar-stricken Homeland History, but the fight is far from over to restore good-fortune to every Veteran in the U.S. who has been mamed by homelessness and who have struggled and suffered, yet who have survived the worst and who have stood tall in the darkness of the streets; braving the bitter-cold nights alone and hungry. This is not the American Dream my father told me about, infact, this sounds like a nightmare that needs to be 100% conquered/tackled and stomped out by (Fiscal Year) 2017 or we could lose more heroes to the streets.
 
+# Starving and Homeless Veterans
+* (California) (Florida) (New York) : [44 percent] of all homeless vets across the country were accounted for back in [January 2013]
+
+### [California] : 15,179 vets in need of aid
+* (Utah : 327) --- (Washington : 1,318) --- (Wisconsin : 552)
+
+# Veterans' Assistance Foundation
+* Homeless Shelter : [727 Decatur St. (Bakersfeild, CA) 93308]
+
+### Veterans in Poverty who are Homeless
+* Current rate of homeless vets suffering from affects of poverty after service : [11 percent] <---> (11%)
+
+# [Opening Doors] : VA-Based Foundation
+* (Q): What is "Opening Doors" ?
+* (A): Opening Doors launched back in the year 2010, with a set goal to prevent and end veteran homelessness in 2015. Since the launch of this program, there has been a [33 percent] decrease in homelessness among veterans.
+
+### Veterans Suffer from Serious Mental Illness
+* (half of veterans experiencing homelessness)
+
+
 # Mental Health-Care for Homeless Vets
 * [healthcare reformation act]
 
@@ -36,9 +56,12 @@
 * "After the start of the Iraq War, there is a growing burden of Mental-Illness, particularly; Post Traumatic Stress Disorder (PTSD)," said Dr. Seal. "They will require increased allocation of resources for better detection and early intervention to prevent cases of permanent strands of further, more indepth and severe; Chronic Mental-Illness, which threatens individual vets, their families, and communities."
 
 ### Afghanistan War on Terror : [2001]
-* [1.6 Million]: more than 1.6 million U.S. soldiers have served, many of whom have been exposed to atleast one or both of the following triggers that are the underlining cause of returning vets' mental illnesses:
-### (Prolonged Combat)
-### (Multiple Tours of Duty)
+[1.6 Million]: more than 1.6 million U.S. soldiers have served, many of whom have been exposed to atleast one or both of the following triggers that are the underlining cause of returning vets' mental illnesses:
+* (Prolonged Combat)
+* (Multiple Tours of Duty)
+
+# Iraq War --- (March of 2003) [Compiling Further Research]
+* THE PRIOR STUDY FOUND: the diagnoses of Mental-Health Disorders, especially Post Traumatic Stress, increased sharply after the war's hastened onset. (2003) Those who visited Department Health Centers in 2004; [14.6 percent] were diagnosed with a mental disorder. After 4 years, diagnoses among those same veterans had risen to nearly [28 percent].
 
 
 ## Mental-Health Recovery for Homeless Veterans 
