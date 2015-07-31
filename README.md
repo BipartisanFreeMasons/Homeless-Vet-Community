@@ -29,4 +29,16 @@
 * (Q): Will this ever be corrected by the proper officials?
 * (A): I can see a higher increase in improvement of this ongoing crisis, but it is not a 100% success, or even a 95% success, which is unacceptable to me personally; considering I represent the Veterans' through this darkened time in their lives as an Advocate and an Advisor. [ACP_Advisor.net] It has been a long journey accross a marred, and scar-stricken Homeland History, but the fight is far from over to restore good-fortune to every Veteran in the U.S. who has been mamed by homelessness and who have struggled and suffered, yet who have survived the worst and who have stood tall in the darkness of the streets; braving the bitter-cold nights alone and hungry. This is not the American Dream my father told me about, infact, this sounds like a nightmare that needs to be 100% conquered/tackled and stomped out by (Fiscal Year) 2017 or we could lose more heroes to the streets.
 
+# Mental Health-Care for Homeless Vets
+* [healthcare reformation act]
+
+## (Dr. Karen Seal Reports): [L.R.A.P.M.P.] University of California, San Fransisco ---
+* "After the start of the Iraq War, there is a growing burden of Mental-Illness, particularly; Post Traumatic Stress Disorder (PTSD)," said Dr. Seal. "They will require increased allocation of resources for better detection and early intervention to prevent cases of permanent strands of further, more indepth and severe; Chronic Mental-Illness, which threatens individual vets, their families, and communities."
+
+### Afghanistan War on Terror : [2001]
+* [1.6 Million]: more than 1.6 million U.S. soldiers have served, many of whom have been exposed to atleast one or both of the following triggers that are the underlining cause of returning vets' mental illnesses:
+### (Prolonged Combat)
+### (Multiple Tours of Duty)
+
+
 ## Mental-Health Recovery for Homeless Veterans 
