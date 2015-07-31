@@ -8,11 +8,11 @@
 ## [M.D.V.A.] : Medical Doctorines Veterans' Affairs
 
 * (Q): What can the VA do to supply immediate medical-aid and public-housing to our current homeless Vets? 
-  (A): The VA needs to rethink their current situation for the help they can offer to the homeless vet communities in all states, especially within the state of California. The VA has suffered a few down-falls defined by corruption surfacing within their system of leading officials. Regardless of the basis of corruption found within the former VA Seceretary's leadership, this should not become a benign form of punishment to our vets and their families who are in desperate need of crisis-aid reliefe opportunities from our VA and from our federal government. These will relay in any un-established benefits that are floating within our treasury-system, awaiting to be sorted out legally by Congress in order to be returned to the hands of our Veterans' in need and their families.
+* (A): The VA needs to rethink their current situation for the help they can offer to the homeless vet communities in all states, especially within the state of California. The VA has suffered a few down-falls defined by corruption surfacing within their system of leading officials. Regardless of the basis of corruption found within the former VA Seceretary's leadership, this should not become a benign form of punishment to our vets and their families who are in desperate need of crisis-aid reliefe opportunities from our VA and from our federal government. These will relay in any un-established benefits that are floating within our treasury-system, awaiting to be sorted out legally by Congress in order to be returned to the hands of our Veterans' in need and their families.
 
 ## [H.A.U.D.] : Veteran-Citizens' Community Restoration Act 
 
 * (Q): 
-  (A): 
+* (A): 
 
 # Non-Profit Fundraising : VA-Support Foundation
